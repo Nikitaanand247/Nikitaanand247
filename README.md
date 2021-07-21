@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nikitaanand247
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning www.adda247.com/school/
-- 💞️ I’m looking to collaborate on my project
+- 💞️ I’m looking to collaborate on my project on www.adda247.com/school/ncert-solutions-class-12-chemistry
 - 📫 How to reach me : anandnikitasem@gmail.com
 
 <!---
